@@ -24,6 +24,6 @@ Soy estudiante tecnica en computacion en el colegio Ing. Otto Krause, con mucha 
 
 - [LinkedIn] www.linkedin.com/in/mejiaalvaradoclaribel
  
-- Email: claribelmejia588@gmail.com
+- Email: mejiaalvarado2205@gmail.com
 
 ¡Gracias por pasarte por mi perfil! 
